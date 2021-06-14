@@ -1,1 +1,0 @@
-# yanti-582bx7yi
